@@ -1,5 +1,7 @@
   Meet the Analyst 
+ 
  👋 Hi, I'm Fathima Afrin
+
 In a world full of data, I turn complexity into clarity.
 
 
