@@ -1,6 +1,7 @@
 Meet the Analyst 
   
-<img width="5120" height="3328" alt="MacBook Air - 1" src="https://github.com/user-attachments/assets/519f518f-b187-4c4a-a7e9-82287430eb26" />
+<img width="1584" height="396" alt="Purple and Green Vibrant Modern Personal LinkedIn Banner (1)" src="https://github.com/user-attachments/assets/05b1d928-8030-4706-9760-f8299c603e40" />
+
 
  👋 Hi, I'm Fathima Afrin
 
